@@ -1,0 +1,1 @@
+I predict that the forest model will perform better due to the data and stats that will come about from the data. 
